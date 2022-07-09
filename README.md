@@ -1,2 +1,3 @@
 # About-MEEEEE
 A little about Potatoesarefrenchfries...
+So, I am a person who can do a little coding, and likes unblocked games sites. Mine is sites.google.com/view/tripplethepotatoes. Enjoy it. thats it uwu.
